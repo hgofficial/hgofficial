@@ -4,4 +4,8 @@
 - 💞️ I’m looking to collaborate on youtube
 - 📫 How to reach me ...👇
 
-<a herf="https://instagram.com/huntergaming_87">Instagram</a>
+Instagram👉
+@huntergaming_87
+
+Youtube👉
+/huntergaming87
